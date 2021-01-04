@@ -12,6 +12,7 @@ CARA MENDOWNLOAD APLIKASI TOUR TO SUNDANESELAND
 8. SELAMAT MENCOBA ^v^
 
 Nama Kelompok : DamHouseProject
+
 Anggota : 
 - Idham Mansyah Awwalu 	1402017067
 - Muhammad Randi	1402017105
